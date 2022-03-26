@@ -1,7 +1,7 @@
 #Resume
 #My name is Maxim Khatkevich
 #Contact information
-* *Telegram* : [@ne_palito](https://t.me/ne_palito)
+* *VK* : https://vk.com/t3chnob0y
 * *Discord* : Khatkevich#7857
 #Characteristics
 I can describe you as diligent, sociable, hardworking and responsible. I always try to find a solution to the problem.
