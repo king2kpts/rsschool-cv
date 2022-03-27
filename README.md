@@ -1,1 +1,1 @@
-https://king2kpts.github.io/rsschool-cv/
+https://king2kpts.github.io/rsschool-cv/cv
