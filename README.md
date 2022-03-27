@@ -1,1 +1,1 @@
-init: start creating resume
+https://king2kpts.github.io/rsschool-cv/
